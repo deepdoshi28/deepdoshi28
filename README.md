@@ -1,4 +1,4 @@
-![image](https://github.com/deepdoshi28/deepdoshi28/assets/162976927/d0bac147-c9a3-4fc6-9269-43771a6b63b7)
+![Uploading image.png…]()
 
 
 # 💫 About Me:
