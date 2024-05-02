@@ -1,5 +1,5 @@
-![Uploading image.png…]
 
+![image](https://github.com/deepdoshi28/deepdoshi28/assets/162976927/954aac7a-c216-4647-80da-8c8d4fd24b8a)
 
 # 💫 About Me:
 Currently I am working on a music finder web app using MERN Stack<br><br>
