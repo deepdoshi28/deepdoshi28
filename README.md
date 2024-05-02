@@ -1,4 +1,4 @@
-![Uploading image.png…]()
+![Uploading image.png…]
 
 
 # 💫 About Me:
